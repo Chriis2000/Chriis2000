@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Chriis2000
 - 👀 I’m interested in Girls
-- 🌱 I’m currently learning my technique
+- 🌱 I’m currently improving my fingering technique
 - 💞️ I’m looking to collaborate on Pornhub
 - 📫 How to reach me chrismassivecock@pornhub.com
 
